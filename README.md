@@ -3,7 +3,7 @@
 the no hwid version will be uploaded soon or later  
 
 
-side effect may include :
+side effect may include :  
 -594,303,485.4 pizza shows at your door tommorow morning  
 -mogus call you at 3am  
 -you accidently ran into drippy fardbear in the street  
